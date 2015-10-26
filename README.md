@@ -1,2 +1,2 @@
 # Side-Scroller -
-Come freinds to this strange platformer we will make together.
+Memes have been crafted
